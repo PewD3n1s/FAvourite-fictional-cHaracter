@@ -2,5 +2,5 @@
 My fav character
 
 
-This waa just made as a quick oroject as it is my first.Thank
+This was just made as a quick project as it is my first.Thank
 you for viewing it! :)
